@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @glitchStutz
+- 👀 I’m interested in making animation ideas or helping to come up with ideas
+- 🌱 I’m currently learning codeing
+- 💞️ I’m looking to collaborate on animation game making and mods for games
+- 📫 How to reach me you will if i can trust ya
+- 😄 Pronouns: he/him or/they them
+- ⚡ Fun fact: im not a glitch
